@@ -2,5 +2,6 @@
 - 🔭 I’m currently working on hzcu
 - 🌱 I’m currently learning c
 - 👯 I’m looking to collaborate on happiness and money
-3423535707@qq.com
+  
+duxiaoyun718@gmail.com
 
